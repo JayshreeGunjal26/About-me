@@ -1,4 +1,4 @@
-Hi, I’m @Jayshree-Gunjal
+👋 Hi, I’m @Jayshree-Gunjal
 
 👀 I’m interested in IT domain
 
